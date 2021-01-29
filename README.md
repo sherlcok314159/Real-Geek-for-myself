@@ -9,6 +9,7 @@ Standards for myself to be a real geek.
 
 *When talking about technology,You can see the happiness in their eyes.*
 
+*I care about how everything works.What's behind the whole system?And I want to figure out.*
 
 ***Taste***
 
