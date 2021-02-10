@@ -22,3 +22,4 @@ Standards for myself to be a real geek.
 
 - *code for fun,like jarvis*
 - *code for sense It seems that I am accomplishing*
+- *do cool things*
